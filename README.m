@@ -1,2 +1,3 @@
 learning new
+be consistent
 
